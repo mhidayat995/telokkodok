@@ -1,0 +1,2 @@
+# telokkodok
+abcdefghijklmnopqrstuvwxyz
